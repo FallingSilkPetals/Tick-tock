@@ -13,6 +13,8 @@
 
 ![timekeeper-cookie](https://github.com/user-attachments/assets/473a33f6-1d39-441e-af2e-019ab0ae8f73)
 
+Do not copy my skins unless i consider you **VERY CLOSE** , inspos are okay , just ask me beforehand !
+
 ``read strawpage for info !``
 
 ![2ae9e4e479bccef78550fd2066a3c811d8033fdb gifv](https://github.com/user-attachments/assets/6e459215-16ab-4e88-90a9-5fa7489162a8)
