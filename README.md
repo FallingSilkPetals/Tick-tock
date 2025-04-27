@@ -1,4 +1,4 @@
-## Tick-tock
+## [![Typing SVG](https://readme-typing-svg.demolab.com?font=Time+New+roman+&pause=100&color=BB8E4F&width=435&lines=Tick-tock)](https://git.io/typing-svg)
 ![2ae9e4e479bccef78550fd2066a3c811d8033fdb gifv](https://github.com/user-attachments/assets/891a8a56-784f-4f50-9747-639795f2c6bf)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Time+New+roman+&pause=100&color=BB8E4F&width=435&lines=Tick-tock+%2C+Tick-tock+%2C+Tick-tock+.)](https://git.io/typing-svg)
